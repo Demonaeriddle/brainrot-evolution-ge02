@@ -1,4 +1,4 @@
-#  
+#  instant Scripts for brainrot evolution is the best brainrot evolution Script, featuring auto-upgrade and auto-collect. Safe and powerful for all your
 
 
 
